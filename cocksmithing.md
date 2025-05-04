@@ -1,6 +1,6 @@
 # Cocksmithing: *a guide to crafting professional-quality silicone dildos at home*
   
-*If you find this work helpful, please consider leaving me a tip with [Ko-Fi](https://ko-fi.com/starkatt). How about 3% of what you spend on materials crafting your first toy?*  
+*If you find this work helpful, please consider leaving me a tip with [Ko-Fi](https://ko-fi.com/starkatt). How abou t 3% of what you spend on materials crafting your first toy?*  
         
 # Introduction
 This guide describes a process for handcrafting high-quality silicone dildos of your own design. With care and practice, it's entirely possible to produce toys similar in quality to those sold by major vendors.
